@@ -11,8 +11,12 @@ Discord: **-Panday-#7008** | DM me or @ me in Panday's discord if I'm missing an
 skins are in order from new to old (click the name to download)
 
 
-# [-          ᚖ  P a n d a y - Beep V1  ᚖ](http://dl.mediafire.com/file/svmbyv057f9t70o/-_%25E1%259A%2596__P_a_n_d_a_y_-_Beep_V1__%25E1%259A%2596.osk/file)
-![](https://i.imgur.com/OmvCl2j.png)
+# [-          ᚖ  P a n d a y - Seol Pink V1  ᚖ](https://dl.dropbox.com/s/bv9a5w1chppak78/-%20%20%20%20%20%20%20%20%20%20%E1%9A%96%20%20P%20a%20n%20d%20a%20y%20-%20Seol%20Pink%20V1%20%20%E1%9A%96.osk?dl=0)
+![](https://i.imgur.com/fbueeD3.png)
+# [-          ᚖ  P a n d a y - Aristia + Andros HDHR V1  ᚖ](https://dl.dropbox.com/s/sw3jck368z432a8/-%20%20%20%20%20%20%20%20%20%20%E1%9A%96%20%20P%20a%20n%20d%20a%20y%20-%20Aristia%20%2B%20Andros%20HDHR%20V1%20%20%E1%9A%96.osk?dl=0)
+![](https://i.imgur.com/FnOK5Xs.png)
+# [-          ᚖ  P a n d a y - Beep V1  ᚖ](https://dl.dropbox.com/s/owuw9lhh8kh970e/-%20%20%20%20%20%20%20%20%20%20%E1%9A%96%20%20P%20a%20n%20d%20a%20y%20-%20Beep%20V1%20%20%E1%9A%96.osk?dl=0)
+![](https://i.imgur.com/rsc9udg.png)
 # [-          ᚖ  P a n d a y - Seol V1  ᚖ](https://dl.dropbox.com/s/vsti20se21d5l56/-%20%20%20%20%20%20%20%20%20%20%E1%9A%96%20%20P%20a%20n%20d%20a%20y%20-%20Seol%20V1%20%20%E1%9A%96.osk?dl=0)
 ![](https://i.imgur.com/O9DzlIh.jpg)
 # [-          ᚖ  P a n d a y -  『K』 V1  ᚖ](https://dl.dropbox.com/s/k7hdaggezh8u7t2/-%20%20%20%20%20%20%20%20%20%20%E1%9A%96%20%20P%20a%20n%20d%20a%20y%20-%20%20%E3%80%8EK%E3%80%8F%20V1%20%20%E1%9A%96.osk?dl=0)
