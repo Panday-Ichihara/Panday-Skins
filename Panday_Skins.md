@@ -11,6 +11,8 @@ Discord: **-Panday-#7008** | DM me or @ me in Panday's discord if I'm missing an
 skins are in order from new to old (click the name to download)
 
 
+# [-          ᚖ  P a n d a y - boocula  ᚖ](https://www.dropbox.com/s/b4f2ec5bwgvd7do/-%20%20%20%20%20%20%20%20%20%20%E1%9A%96%20%20P%20a%20n%20d%20a%20y%20-%20boocula%20V1%20%20%E1%9A%96.osk?dl=0)
+![](https://i.imgur.com/0m99UKC.png)
 # [-          ᚖ  P a n d a y - Seol Pink V1  ᚖ](https://dl.dropbox.com/s/vphsret2sy7fox0/-%20%20%20%20%20%20%20%20%20%20%E1%9A%96%20%20P%20a%20n%20d%20a%20y%20-%20Seol%20Pink%20V1%20%20%E1%9A%96.osk?dl=0)
 ![](https://i.imgur.com/fbueeD3.png)
 # [-          ᚖ  P a n d a y - Aristia + Andros HDHR V1  ᚖ](https://dl.dropbox.com/s/sw3jck368z432a8/-%20%20%20%20%20%20%20%20%20%20%E1%9A%96%20%20P%20a%20n%20d%20a%20y%20-%20Aristia%20%2B%20Andros%20HDHR%20V1%20%20%E1%9A%96.osk?dl=0)
