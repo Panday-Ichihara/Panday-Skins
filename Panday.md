@@ -2,7 +2,7 @@
 
 * [**Panday Discord**](https://discord.gg/XpujBsw)
 
-* [**Panday Twitch**](https://www.twitch.tv/ichihara_panday)
+* [**Panday Twitch**](https://www.twitch.tv/panday_ichiihara)
 
 Discord: **'Panday - 壱原#7008** | DM me or @ me in Panday's discord if I'm missing any or if any links are broken thx 
 
@@ -10,6 +10,8 @@ Discord: **'Panday - 壱原#7008** | DM me or @ me in Panday's discord if I'm mi
 
 skins are in order from new to old (click the name to download)
 
+# [-             ☾ Panday ☽ 『Boundary』](https://dl.dropbox.com/s/r8nnc16x3pk80rf/-%20%20%20%20%20%20%20%20%20%20%20%20%20%E2%98%BE%20Panday%20%E2%98%BD%20%E3%80%8EBoundary%E3%80%8F.osk?dl=0)
+![](https://i.imgur.com/zHUArqj.png)
 # [-             ☾ Panday ☽ 『Necrofantasia』](https://dl.dropbox.com/s/kl8r0ptahnpwn7b/-%20%20%20%20%20%20%20%20%20%20%20%20%20%E2%98%BE%20Panday%20%E2%98%BD%20%E3%80%8ENecrofantasia%E3%80%8F.osk?dl=0)
 ![](https://i.imgur.com/TahFOf6.png)
 # [-             ☾ Panday ☽ 『Chroma』](https://dl.dropbox.com/s/kxohddycmax1959/-%20%20%20%20%20%20%20%20%20%20%20%20%20%E2%98%BE%20Panday%20%E2%98%BD%20%E3%80%8EChroma%E3%80%8F.osk?dl=0)
