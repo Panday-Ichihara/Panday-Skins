@@ -10,10 +10,12 @@ Discord: **'Panday - 壱原#7008** | DM me or @ me in Panday's discord if I'm mi
 
 skins are in order from new to old (click the name to download)
 
-# [-             ☾ Panday ☽ 『Boundary』](https://dl.dropbox.com/s/r8nnc16x3pk80rf/-%20%20%20%20%20%20%20%20%20%20%20%20%20%E2%98%BE%20Panday%20%E2%98%BD%20%E3%80%8EBoundary%E3%80%8F.osk?dl=0)
-![](https://i.imgur.com/zHUArqj.png)
-# [-             ☾ Panday ☽ 『Necrofantasia』](https://dl.dropbox.com/s/kl8r0ptahnpwn7b/-%20%20%20%20%20%20%20%20%20%20%20%20%20%E2%98%BE%20Panday%20%E2%98%BD%20%E3%80%8ENecrofantasia%E3%80%8F.osk?dl=0)
-![](https://i.imgur.com/TahFOf6.png)
+# [-             ☾ Panday ☽ 『Boundary』](https://dl.dropbox.com/s/w84u7o5h6hqsepu/-%20%20%20%20%20%20%20%20%20%20%20%20%20%E2%98%BE%20Panday%20%E2%98%BD%20%E3%80%8EBoundary%E3%80%8F.osk?dl=0)
+![](https://i.imgur.com/okfiFCf.png)
+# [-             ☾ Panday ☽ 『Necrofantasia』](https://dl.dropbox.com/s/y35ama6h81mk8y1/-%20%20%20%20%20%20%20%20%20%20%20%20%20%E2%98%BE%20Panday%20%E2%98%BD%20%E3%80%8ENecrofantasia%E3%80%8F.osk?dl=0)
+![](https://i.imgur.com/03pjzqc.png)
+# [-             ☾ Panday ☽ 『Pandafis』](https://dl.dropbox.com/s/crdvy6fyeizd2fh/-%20%20%20%20%20%20%20%20%20%20%20%20%20%E2%98%BE%20Panday%20%E2%98%BD%20%E3%80%8EPandaFis%E3%80%8F.osk?dl=0)
+![](https://i.imgur.com/kvuE2eX.png)
 # [-             ☾ Panday ☽ 『Chroma』](https://dl.dropbox.com/s/kxohddycmax1959/-%20%20%20%20%20%20%20%20%20%20%20%20%20%E2%98%BE%20Panday%20%E2%98%BD%20%E3%80%8EChroma%E3%80%8F.osk?dl=0)
 ![](https://i.imgur.com/V1OdBqC.png)
 # [-             ☾ Panday ☽ 『Alter』](https://dl.dropbox.com/s/f0nvtlb2crjwhwe/-%20%20%20%20%20%20%20%20%20%20%20%20%20%E2%98%BE%20Panday%20%E2%98%BD%20%E3%80%8EAlter%E3%80%8F.osk?dl=0)
