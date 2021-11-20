@@ -10,6 +10,8 @@ Discord: **'Panday - 壱原#7008** | DM me or @ me in Panday's discord if I'm mi
 
 skins are in order from new to old (click the name to download)
 
+# [-             ☾ Panday ☽ 『Necro-A-fantasy』](https://dl.dropbox.com/s/fpwcw2xzvnqaa3c/-%20%20%20%20%20%20%20%20%20%20%20%20%20%E2%98%BE%20Panday%20%E2%98%BD%20%E3%80%8ENecro-A-fantasy%E3%80%8F.osk?dl=0)
+![](https://i.imgur.com/YwBVOzs.png)
 # [-             ☾ Panday ☽ 『Boundary』](https://dl.dropbox.com/s/w84u7o5h6hqsepu/-%20%20%20%20%20%20%20%20%20%20%20%20%20%E2%98%BE%20Panday%20%E2%98%BD%20%E3%80%8EBoundary%E3%80%8F.osk?dl=0)
 ![](https://i.imgur.com/okfiFCf.png)
 # [-             ☾ Panday ☽ 『Necrofantasia』](https://dl.dropbox.com/s/y35ama6h81mk8y1/-%20%20%20%20%20%20%20%20%20%20%20%20%20%E2%98%BE%20Panday%20%E2%98%BD%20%E3%80%8ENecrofantasia%E3%80%8F.osk?dl=0)
