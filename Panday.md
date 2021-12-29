@@ -9,6 +9,7 @@ Discord: **'Panday - 壱原#7008** | DM me or @ me in Panday's discord if I'm mi
 # ALL SKINS OF PANDAY
 
 skins are in order from new to old (click the name to download)
+Some extras inside skin folder (like spinner and cursors)
 
 # [-             ☾ Panday ☽ 『Necro-A-fantasy』](https://dl.dropbox.com/s/9sk21v6u6fa3hll/-%20%20%20%20%20%20%20%20%20%20%20%20%20%E2%98%BE%20Panday%20%E2%98%BD%20%E3%80%8ENecro-A-fantasy%E3%80%8F.osk?dl=0)
 ![](https://i.imgur.com/URJtuO9.png)
