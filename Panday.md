@@ -2,7 +2,7 @@
 
 * [**Panday Discord**](https://discord.gg/XpujBsw)
 
-* [**Panday Twitch**](https://www.twitch.tv/panday_ichiihara)
+* [**Panday Twitch**](https://www.twitch.tv/panday_ichihara)
 
 Discord: **'Panday - 壱原#7008** | DM me or @ me in Panday's discord if I'm missing any or if any links are broken thx 
 
