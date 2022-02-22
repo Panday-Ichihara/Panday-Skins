@@ -14,7 +14,7 @@ Some extras inside skin folder (like spinner and cursors)
 
 # [-             ☾ Yukari ☽ 『Necrofantasia』](https://dl.dropbox.com/s/4gijqdwp2lpd69u/-%20%20%20%20%20%20%20%20%20%20%20%20%20%E2%98%BE%20Yukari%20%E2%98%BD%20%E3%80%8ENecrofantasia%E3%80%8F.osk?dl=0)
 ![](https://i.imgur.com/52MyKPc.png)
-# [-             ☾ Yukari☽ 『Gaphag』](https://dl.dropbox.com/s/y3do74zh5u0ma4p/-%20%20%20%20%20%20%20%20%20%20%20%20%20%E2%98%BE%20Yukari%E2%98%BD%20%E3%80%8EGaphag%E3%80%8F.osk?dl=0)
+# [-             ☾ Yukari☽ 『Gaphag』](https://dl.dropbox.com/s/zqpf32qd9gf4csn/-%20%20%20%20%20%20%20%20%20%20%20%20%20%E2%98%BE%20Yukari%E2%98%BD%20%E3%80%8EGaphag%E3%80%8F.osk?dl=0)
 ![](https://i.imgur.com/kBvLfh5.png)
 # [-             ☾ Panday ☽ 『Necro-A-fantasy』](https://dl.dropbox.com/s/9sk21v6u6fa3hll/-%20%20%20%20%20%20%20%20%20%20%20%20%20%E2%98%BE%20Panday%20%E2%98%BD%20%E3%80%8ENecro-A-fantasy%E3%80%8F.osk?dl=0)
 ![](https://i.imgur.com/URJtuO9.png)
