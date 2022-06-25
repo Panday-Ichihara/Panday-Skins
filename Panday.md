@@ -4,7 +4,7 @@
 
 * [**Yukari Twitch**](https://www.twitch.tv/yukariiyakumo)
 
-Discord: **'Panday - 壱原#7008** | DM me or @ me in Panday's discord if I'm missing any or if any links are broken thx 
+Discord: **'Panday - 壱原#7008** | DM me or @ me in Yukari's discord if I'm missing any or if any links are broken thx 
 
 # ALL SKINS OF PANDAY
 
