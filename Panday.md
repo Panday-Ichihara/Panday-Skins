@@ -1,8 +1,8 @@
 # *THIS WILL STAY UPDATED* 
 
-* [**Panday Discord**](https://discord.gg/XpujBsw)
+* [**Yukari Discord**](https://discord.gg/uMqbsxRFXc)
 
-* [**Panday Twitch**](https://www.twitch.tv/panday_ichihara)
+* [**Yukari Twitch**](https://www.twitch.tv/yukariiyakumo)
 
 Discord: **'Panday - 壱原#7008** | DM me or @ me in Panday's discord if I'm missing any or if any links are broken thx 
 
