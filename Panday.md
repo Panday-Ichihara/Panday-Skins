@@ -15,6 +15,8 @@ skins are in order from new to old (click the name to download)
 Some extras inside skin folder (like spinner and cursors)
 
 
+# [-             ☾ Yukari ☽ 『Suba Yukari』](https://dl.dropbox.com/scl/fi/vg8oaygxry3250puxtgd1/Yukari-Suba-Yukari.osk?rlkey=7ilnzgdznfjyxn162w2g8o4js&dl=0)
+![](https://i.imgur.com/dpPcCha.png)
 # [-             ☾ Yukari ☽ 『Ryan Yukari』](https://dl.dropbox.com/scl/fi/dtsumwzwct4i1am0m17nj/Yukari-Ryan-Yukari.osk?rlkey=xmm55h5q862gxu2vz8qwnp3m8&dl=0)
 ![](https://i.imgur.com/M7Ko8mT.png)
 # [-             ☾ Yukari ☽ 『Gensokyo』](https://dl.dropbox.com/scl/fi/ont3govluh7q0yj4v2m5l/Yukari-Gensokyo.osk?rlkey=x09yuhgyy9eg8438hrb5f4apy&dl=0)
