@@ -4,7 +4,7 @@
 
 * [**Yukari Twitch**](https://www.twitch.tv/yukariiyakumo)
 
-Discord: **Yukari Yakumo#7008** | DM me or @ me in Yukari's discord if I'm missing any or if any links are broken thx 
+Discord: **Panday** | DM me or @ me in Yukari's discord if I'm missing any or if any links are broken thx 
 
 Elements used: alivemaster/panday/Darriuswashere/ (and many others) (lots of elements used.)
 
