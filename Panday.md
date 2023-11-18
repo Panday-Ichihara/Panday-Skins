@@ -1,8 +1,8 @@
 # *THIS WILL STAY UPDATED* 
 
-* [**Yukari Discord**](https://discord.gg/uMqbsxRFXc)
+* [**Yukari Discord**](https://discord.gg/cXSeD3Hnew)
 
-* [**Yukari Twitch**](https://www.twitch.tv/yukariiyakumo)
+* [**Yukari Twitch**](https://www.twitch.tv/panday__)
 
 Discord: **Panday** | DM me or @ me in Yukari's discord if I'm missing any or if any links are broken thx 
 
