@@ -14,7 +14,8 @@ skins are in order from new to old (click the name to download)
 
 Some extras inside skin folder (like spinner and cursors)
 
-
+# [-             ☾ Yukari ☽ 『Kori Yukari』](https://dl.dropbox.com/scl/fi/jqehw4r24bpa7kjqic9rn/Yukari-Kori-Yukari.osk?rlkey=v9r14vczybptruldz1k2r0p8v&st=aftn4tda&dl=0)
+![](https://i.imgur.com/9WJfn3e.png)
 # [-             ☾ Yukari ☽ 『Ko Yukari』](https://dl.dropbox.com/scl/fi/oqbb0697w08xehim9ibz4/Yukari-Ko-Yukari.osk?rlkey=lo1v03q21oz0ebrrqtam83xsg&dl=0)
 ![](https://i.imgur.com/5mXoNNM.png)
 # [-             ☾ Yukari ☽ 『Axarius Yukari』](https://dl.dropbox.com/scl/fi/y3tnzo94ikmi2nrmrn1ef/Yukari-Axarius-Yukari.osk?rlkey=irzdl5he9nquvmk2cvkykqgg5&dl=0)
